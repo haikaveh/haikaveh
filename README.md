@@ -1,5 +1,6 @@
 ### rene / luci !!!!!
 
+![](https://media.discordapp.net/attachments/723002036752220213/1162845420851044392/dwdsadad.PNG?ex=653d6b30&is=652af630&hm=db3dae0c22d8f85011a32e83b40ddb4e39b3fea2a4b7cb4d705a64cb76c46cce&=)
 ![](https://media.discordapp.net/attachments/723002036752220213/1160643096384647239/Screenshot_20231008-111827_Chrome.jpg?ex=6535681d&is=6522f31d&hm=e3444779f84019fbdf48b7ffc0288895be28aae5eb4a6a878dc6f15866912879&)
 
 ![](https://i2.glitter-graphics.org/pub/1722/1722672rxqmc3clfh.gif)
