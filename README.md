@@ -7,6 +7,7 @@ im usually in an alhaitham cos, any ship can int idm (unless its problematic)
 
 if i dont reply to your whisper i probably didnt see it and ill try to get back to you 
 
+![](https://media.discordapp.net/attachments/723002036752220213/1165758624505802832/1572_Discord____-_Google_Chrome_10_22_2023_1_55_19_PM.png?ex=65480452&is=65358f52&hm=5ed8667267f53d0881634f9bfd000d092e13ef31d07d20141bdec2593897add3&=)
 ![](https://media.discordapp.net/attachments/723002036752220213/1164062636867076096/ghnhvfbnbv.PNG?ex=6541d8cf&is=652f63cf&hm=192cf17b1d18a76709379ed9bb4f1e3888cbcca6ef1d55f9fe24fd49277f017e&=)
 ![](https://media.discordapp.net/attachments/723002036752220213/1162845420851044392/dwdsadad.PNG?ex=653d6b30&is=652af630&hm=db3dae0c22d8f85011a32e83b40ddb4e39b3fea2a4b7cb4d705a64cb76c46cce&=) ![](https://media.discordapp.net/attachments/723002036752220213/1162846124877549670/dsadsdasdadsa.PNG?ex=653d6bd8&is=652af6d8&hm=e2e6f6f137d82e5e1295713f42a2ed5430303d23ad87e3ba9126d17144d9e089&=)
 ![](https://media.discordapp.net/attachments/723002036752220213/1160643096384647239/Screenshot_20231008-111827_Chrome.jpg?ex=6535681d&is=6522f31d&hm=e3444779f84019fbdf48b7ffc0288895be28aae5eb4a6a878dc6f15866912879&)
