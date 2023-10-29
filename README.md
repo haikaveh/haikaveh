@@ -2,6 +2,7 @@
 
 c+h & w2i i bite!!!
 
+![](https://media.discordapp.net/attachments/723002036752220213/1168274457144590418/image.png?ex=65512b60&is=653eb660&hm=f54c5a20086bdaf7db50f98677f32d8394c9f45ac005f96cde4a6b07fc68cc99&=)
 
 ![](https://i2.glitter-graphics.org/pub/1722/1722672rxqmc3clfh.gif)
 
