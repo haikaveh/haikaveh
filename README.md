@@ -1,9 +1,1 @@
-# haikaveh github.com haika
-
-not a freak today!! surviving the ponytown dni criterias #NORMAL
-![image](https://github.com/haikaveh/haikaveh/assets/142762906/f0be52a5-2878-4b38-bdbf-e162346a7e75)
-
-?
-![image](https://github.com/haikaveh/haikaveh/assets/142762906/5c0eb9d9-a10d-477e-9fb7-49b37aa6c14b)
-![image](https://github.com/haikaveh/haikaveh/assets/142762906/346f23ed-61e0-42a4-968c-450f972f89d5)
-
+![](https://media.discordapp.net/attachments/1124865972248006807/1206337494178603078/ghjhgfghjhgfg.jpg?ex=65dba457&is=65c92f57&hm=8fce8c429b117c6225108cb4fe12906077f9f64b827fa08be162eb6cabf4b2ef&=&format=webp&width=481&height=395)
